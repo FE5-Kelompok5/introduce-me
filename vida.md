@@ -1,0 +1,1 @@
+Nama : vida komaria
